@@ -1,2 +1,4 @@
 ME ENCANTAN LAS PUCHEINAS, SON DELICIOSASSS
-natyusme
+Nataly Ladeuth Usme
+beatrizusme97@gmail.com
+Fundación Educativa Jean Piaget
